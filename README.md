@@ -16,7 +16,7 @@ Out of the lamp seeps a gaseous substance which solidifies into the shape of a m
 
 The genie explains to you that you will get three wishes, but he insistently asks that you use your final wish to set him free from the wretched lamp. If you don't, since mankind is surely coming to an end, he will be trapped there forever. You impatiently nod, watching the zombies approach slowly but surely.
 
-Life essentials come first, of course. Your first wish is for an abundance of food and drinking water for your refugee camp, and the genie fulfills it with a flick of his finger. Then, bearing all the sick people in the camp, you wish for medical supplies to help treat them, which the genie grants also.
+Life essentials come first, of course. Your first wish is for an abundance of food and drinking water for your refugee camp, and the genie fulfills it with a flick of his finger. Then, bearing all the sick people in the camp in mind, you wish for medical supplies to help treat them, which the genie grants also.
 
 However, this does not solve one of your most urgent problems, and now there is only one wish left! The genie looks at you expectantly, but you suddenly realize that you will need this wish for yourself as well. You could wish the zombies gone, but... That would not solve your problems of ammunition, and in this kind of world, you realize that a gun will come in handy, even be necessary, for survival.
 
